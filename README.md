@@ -1,7 +1,7 @@
 # Hey 🐱‍👤
 My name is Tiago
 
-<p> <center> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTBS9jmhCcTER6yJ8OSGuZnxA83oBeXYikW5Q&usqp=CAU"> </center> </p>
+<p> <center> <img src="https://i.pinimg.com/originals/5d/bd/cc/5dbdcc4193edeeca325e2220dd4f857f.gif"> </center> </p>
 
 
 Play on the chest dad and touch 🐱‍🏍
