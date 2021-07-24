@@ -21,3 +21,23 @@ Play on the chest dad and touch 🐱‍🏍
   <img src="https://img.shields.io/badge/Windows-0A0A0A?style=for-the-badge&logo=windows&logoColor=cyan">
   <img src="https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white" /></a>
   <p> <center> <img src="https://data.whicdn.com/images/226289626/original.gif"> </center> </p>
+      
+      <p>  <center><pre><strike></strike> <font size="5" color="red" face="courier" ;"="" <font="">
+            |\    _,--------._    / |
+            | `.,'            `. /  |
+            ` '              ,-'   '
+             \/_         _   (     /
+            (,-.`.    ,',-.`. `__,'
+            |/#\ ),-','#\`= ,'.` |
+             `._/)  -'.\_,'   ) ))|
+             /  (_.)\     .   -'//
+             (  /\____/\    ) )`'\
+                                   \ |V----V||  ' ,    \                    
+              |`- -- -'   ,'   \  \      _____
+              |         .'    \ \  `._,-'     `-
+          `.__,`---^---'       \ ` -'
+             -.______  \ . /  ______,-
+                     `.     ,'            fucked.
+  </font><br> <u></u> <p><font color="white"></center>	</p>
+      
+   
